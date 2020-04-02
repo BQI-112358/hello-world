@@ -23,4 +23,4 @@
 その後、一緒に冒険に出かけ、友人になった。
 
 
-aaa
+https://dic.nicovideo.jp/a/fack
